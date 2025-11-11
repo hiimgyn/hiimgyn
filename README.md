@@ -1,6 +1,6 @@
 
 ### Hi there 👋
-I'm Nguyễn Minh Hùng aka Gyginee
+I'm Nguyễn Minh Hùng aka Gyn
 >About me ? Just a person who has a fairly simple lifestyle doesn't care too much about appearance, is single, and wants to develop himself from career to love ^^.
 ### Favorite 👋
 
