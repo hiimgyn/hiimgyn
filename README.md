@@ -15,7 +15,7 @@
 ### 👨‍💻 A Little About Me
 - 🎯 **Focus:** Bridging the gap between stakeholders' vision and technical implementation.
 - 💡 **Expertise:** API Design, Database Architecture, Requirement Elicitation, Agile/Scrum.
-- 📫 **Contact:** [hiimgyn@gmail.com](mailto:hiimgyn@gmail.com)
+- 📫 **Contact:** [hiimgyn@gmail.com](mailto:hiimgyn@gmail.com) / [nguyenminhhung.work@gmail.com](mailto:nguyenminhhung.work@gmail.com)
 
 <br/>
 
